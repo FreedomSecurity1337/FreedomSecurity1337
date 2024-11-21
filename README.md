@@ -21,9 +21,9 @@
 
 ### - Hobbies : 
 - ✨ Gaming Addict
-- ✨ learn and understand conspiracy theories
-- ✨ Reading Novels
-- ✨ basket
+- ✨ Reading Novel
+- ✨ Basket
+- ✨ Sleep (must)
 
 </br>
 </br>
